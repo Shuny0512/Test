@@ -1,6 +1,5 @@
 # Test
 エイラよっわwwwwwwwwwwww
-うるさいうるさい
 
 おっぱい
 
